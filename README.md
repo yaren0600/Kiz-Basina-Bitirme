@@ -78,3 +78,12 @@ Hazırlayan: Begüm Yaren ÖZTÜRK
 
 ---
 
+<img width="1913" height="1011" alt="image" src="https://github.com/user-attachments/assets/18ec0327-8dc6-48f6-8647-b43b38a2f2ea" />
+
+
+<img width="1317" height="745" alt="image" src="https://github.com/user-attachments/assets/e9aecb2d-c1d1-4b65-9c3f-ba3554f95add" />
+
+
+<img width="1316" height="723" alt="image" src="https://github.com/user-attachments/assets/d1ff141f-75d1-439c-bfd6-895c0b6ae418" />
+
+
